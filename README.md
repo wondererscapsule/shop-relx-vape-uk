@@ -1,1 +1,1 @@
-# shop-relx-vape-uk
+<h1>Shop Relx Vape</h1><p><a href="post/under-the-radar?-vape-shops,-cash,-and-concerns-about-money-laundering.md">"under The Radar? Vape Shops, Cash, And Concerns About Money Laundering"</a></p><p><a href="post/are-vape-shops-still-profitable-unpacking-the-e-cigarette-business-in-2024.md">Are Vape Shops Still Profitable Unpacking The E-cigarette Business In 2024</a></p>
